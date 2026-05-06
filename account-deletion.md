@@ -54,7 +54,7 @@ If you want **extra removal** of content tied to your old profile after account 
 
 If you **cannot access the app** (for example you lost the device) but you still want your account deleted, email us from the **same address** you used to register, if possible:
 
-**Email:** usamatahirsatti@gmail.com  
+**Email:** stellixsoft@gmail.com  
 
 Include:
 
@@ -76,7 +76,7 @@ You may **create a new account** later if the app allows it, but **previous cont
 
 Questions about account deletion or this page:
 
-**Email:** usamatahirsatti@gmail.com
+**Email:** stellixsoft@gmail.com  
 
 ---
 
