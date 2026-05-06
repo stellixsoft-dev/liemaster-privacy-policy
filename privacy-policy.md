@@ -94,4 +94,4 @@ We may update this Privacy Policy from time to time. We will post the updated ve
 
 If you have questions about this Privacy Policy or LieMaster’s data practices, contact us at:
 
-**Email:** usamatahirsatti@gmail.com
+**Email:** stellixsoft@gmail.com
